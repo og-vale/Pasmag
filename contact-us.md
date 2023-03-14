@@ -3,7 +3,7 @@ layout: post
 categories: []
 title: Contact us
 author: Barbara
-image: ''
+image: "/assets/images/oct-2022-residents-group-distance.jpg"
 
 ---
 **Email:** [pasmag5042@gmail.com]()
