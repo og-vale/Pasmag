@@ -6,9 +6,13 @@ author: Barbara
 image: ''
 
 ---
+**Email:** [pasmag5042@gmail.com]()
+
 **Pasadena & St Marys Action Group**
 
-[http://www.facebook.com/groups/3094100320827944/](http://www.facebook.com/groups/3094100320827944/ "http://www.facebook.com/groups/3094100320827944/")
+Facebook: [http://www.facebook.com/groups/3094100320827944/](http://www.facebook.com/groups/3094100320827944/ "http://www.facebook.com/groups/3094100320827944/")
+
+Instagram: [https://www.instagram.com/pasmag5042/](https://www.instagram.com/pasmag5042/ "https://www.instagram.com/pasmag5042/")
 
 **Buy Nothing Project (Clarence Gdns-St Marys/Pasadena)**
 
