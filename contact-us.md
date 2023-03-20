@@ -6,9 +6,9 @@ author: Barbara
 image: "/assets/images/oct-2022-residents-group-distance.jpg"
 
 ---
-**Email:** [pasmag5042@gmail.com]()
-
 **Pasadena & St Marys Action Group**
+
+**Email:** [pasmag5042@gmail.com]()
 
 Facebook: [http://www.facebook.com/groups/3094100320827944/](http://www.facebook.com/groups/3094100320827944/ "http://www.facebook.com/groups/3094100320827944/")
 
